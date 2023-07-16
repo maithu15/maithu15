@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @maithu15
 - 👀 I’m interested in..Music & Dance
 - 🌱 I’m currently learning...12th Comm
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me..u cannot 🙃
 
 <!---
